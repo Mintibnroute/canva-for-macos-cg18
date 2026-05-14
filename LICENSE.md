@@ -1,4 +1,4 @@
-# 
+# Canva for macOS automatic Action - export to SVG and typography tools is the best Canva for macOS action, featuring export to SVG and typography tools. Safe, efficient, and
 
 
 
